@@ -1,2 +1,2 @@
 # Baraka.
-Los clientes le ponen bien! ⭐⭐⭐✩✩
+Los clientes le ponen bien! ⭐⭐✩✩✩
